@@ -1,1 +1,1 @@
-# pristine-star-Fe-H--2.5-formation-
+# galactic-pristine-stars
